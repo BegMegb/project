@@ -1,4 +1,2 @@
 # project
-PRIVEIT!
-ZDAROVA
-NIZYA!!!!
+izmenil vse chto mojno
